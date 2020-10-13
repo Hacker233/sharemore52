@@ -7,4 +7,13 @@
 
 ### 1.Photoshop
 
-[2020最新敬伟photoshop教程全套视频+素材！](https://mp.weixin.qq.com/s/uMbLYxIGNrTuM68ZideVUg)
+（1）[2020最新敬伟photoshop教程全套视频+素材！](https://mp.weixin.qq.com/s/uMbLYxIGNrTuM68ZideVUg)
+
+## 四.视频剪辑类
+
+### 1.PR视频剪辑
+
+（1）向天歌李兴兴的pr教程和素材
+
+链接：https://pan.baidu.com/s/155ioQsjuNnzKxhQVcL7dXw
+提取码：85v0 
