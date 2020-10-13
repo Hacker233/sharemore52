@@ -1,6 +1,13 @@
 # 各类免费资料合集
 ## 一.互联网类
 
+### 1.前端
+
+（1）TypeScript 系统入门到项目实战
+
+链接：https://pan.baidu.com/s/1GJ01-FZ0pFZiLkCwy4ZL8w
+提取码：x2v5
+
 ## 二.公务员考试类
 
 ## 三.平面设计类
