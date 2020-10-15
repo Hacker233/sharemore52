@@ -44,4 +44,4 @@
 
 更快的享受最新的资料、最新的教程、最神器的黑科技软件、网站等等。
 
-![扫码_搜索联合传播样式-标准色版](C:\Users\lanyuan\Desktop\扫码_搜索联合传播样式-标准色版.png)
+<img src="D:\资料分享大师\github文章\-sharemore52-\公众号.jpg" style="zoom:70%;" />
