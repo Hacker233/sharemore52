@@ -35,3 +35,13 @@
 
 链接：https://pan.baidu.com/s/1KA2uxbmYQbUcO3WwMwwjbw
 提取码：2v93
+
+------
+
+关注微信公众号
+
+【资料分享大师】
+
+更快的享受最新的资料、最新的教程、最神器的黑科技软件、网站等等。
+
+![扫码_搜索联合传播样式-标准色版](C:\Users\lanyuan\Desktop\扫码_搜索联合传播样式-标准色版.png)
