@@ -22,6 +22,12 @@
 
 （1）[2020最新敬伟photoshop教程全套视频+素材！](https://mp.weixin.qq.com/s/uMbLYxIGNrTuM68ZideVUg)
 
+（2）Adobe Photoshop 2021尝鲜版
+
+链接: https://pan.baidu.com/s/1h-V5mMsGpAuTeH4I_KO2sw   
+
+提取码: e5a5
+
 ## 四.视频剪辑类
 
 ### 1.视频剪辑
