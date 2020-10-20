@@ -28,6 +28,14 @@
 
 提取码: e5a5
 
+### 2.室内设计
+
+（1）价值4600元的室内设计行业实战课
+
+链接：https://pan.baidu.com/s/1sYAjhittDPzgtoJJnsM7Bg
+
+提取码：v4xz
+
 ## 四.视频剪辑类
 
 ### 1.视频剪辑
@@ -44,11 +52,29 @@
 
 ## 五.福利软件类
 
+（1）【绿色软件】扫描全能王全功能版
+
+下载地址：https://lanzoui.com/iJi75h82saf
+
 ## 六.网站推荐
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
 
 （2）[129个百度网盘资源搜索网站大全](https://mp.weixin.qq.com/s/2F_nPuTUyhKKQ3pRiZ5QAw)
+
+（3）[这7个网站每一个都可以玩上一整天！](https://mp.weixin.qq.com/s/5iyhe6UkfbmA7nxzLxgIFA)
+
+## 七.其他娱乐类
+
+（1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
+
+## 八.小说电子书类
+
+（1）金庸作品全集
+
+链接：https://pan.baidu.com/s/177jCY0UP22Vfgbc8lpzQg
+
+提取码：zn9q
 
 ------
 
