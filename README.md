@@ -42,6 +42,14 @@
 链接：https://pan.baidu.com/s/1KA2uxbmYQbUcO3WwMwwjbw
 提取码：2v93
 
+## 五.福利软件类
+
+## 六.网站推荐
+
+（1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
+
+（2）[129个百度网盘资源搜索网站大全](https://mp.weixin.qq.com/s/2F_nPuTUyhKKQ3pRiZ5QAw)
+
 ------
 
 
