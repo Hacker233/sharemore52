@@ -56,6 +56,12 @@
 
 下载地址：https://lanzoui.com/iJi75h82saf
 
+（2）2020双十一自动养猫小工具
+
+推文链接：[2020双十一自动养猫小工具](https://mp.weixin.qq.com/s/XIt9g0d7pM7GFiY10FisWw)
+
+蓝奏云链接：https://lanzoui.com/iWaGnhlqy6j
+
 ## 六.网站推荐
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
