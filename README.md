@@ -62,6 +62,12 @@
 
 蓝奏云链接：https://lanzoui.com/iWaGnhlqy6j
 
+（3）CAD全套软件2004-2021版本
+
+链接: https://pan.baidu.com/s/1r2UIrQHMgMB6-7sBrUq78w 
+
+提取码: a4gq
+
 ## 六.网站推荐
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
