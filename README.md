@@ -8,6 +8,14 @@
 链接：https://pan.baidu.com/s/1GJ01-FZ0pFZiLkCwy4ZL8w
 提取码：x2v5
 
+### 2.python
+
+（1）11周机器学习入门到入院全套教程
+
+链接: https://pan.baidu.com/s/1jQnjAFyrR9gzLBAjeZQxJg 
+
+提取码: jshe
+
 ## 二.公务员考试类
 
 （1）【粉笔】2021国考笔试系统班
@@ -27,6 +35,12 @@
 链接: https://pan.baidu.com/s/1h-V5mMsGpAuTeH4I_KO2sw   
 
 提取码: e5a5
+
+（3）PS人物转手绘全套教程+素材
+
+链接: https://pan.baidu.com/s/1cDczqcJVp6SVr551ii_xFA 
+
+提取码: 64ai
 
 ### 2.室内设计
 
@@ -66,7 +80,17 @@
 
 链接: https://pan.baidu.com/s/1r2UIrQHMgMB6-7sBrUq78w 
 
+（4）腾讯视频PC版去广告绿色特别版
+
+下载地址：https://www.lanzoux.com/iCu54grtsuf
+
 提取码: a4gq
+
+（5）[超强办公聚合软件推荐！效率提升10倍！](https://mp.weixin.qq.com/s/lnLFNjuU-3-1NayvaMMsJQ)
+
+绿色免安装版：https://womye.lanzous.com/iF9EBgjyy1e 密码:7dp2
+
+安装版：https://womye.lanzous.com/i9qNWgjyy3g 密码:2t8f
 
 ## 六.网站推荐
 
@@ -75,6 +99,10 @@
 （2）[129个百度网盘资源搜索网站大全](https://mp.weixin.qq.com/s/2F_nPuTUyhKKQ3pRiZ5QAw)
 
 （3）[这7个网站每一个都可以玩上一整天！](https://mp.weixin.qq.com/s/5iyhe6UkfbmA7nxzLxgIFA)
+
+（4）[17个追剧必备的网站推荐！](https://mp.weixin.qq.com/s/RWXypydm--KRgN2MebHQYA)
+
+（5）[分享6个百度文库vip解析下载的好网站](https://mp.weixin.qq.com/s/aBkS2z9gFWYel296UqD-uA)
 
 ## 七.其他娱乐类
 
