@@ -98,6 +98,15 @@
 
 安装版：https://womye.lanzous.com/i9qNWgjyy3g 密码:2t8f
 
+（6）[【Office2019专业增强版】离线安装包](https://mp.weixin.qq.com/s/Hcts3Zm-w-NXVGtVIaISZQ)
+
+链接：https://pan.baidu.com/s/128aOwcZfY4w-enqBIzXy7Q
+提取码：6zit
+
+百度网盘：https://pan.baidu.com/s/1vG9RwIcag-XbW7FmOH3ncg
+
+提取码：jdea
+
 ## 六.网站推荐
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
