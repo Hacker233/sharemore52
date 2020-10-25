@@ -119,6 +119,8 @@
 
 （5）[分享6个百度文库vip解析下载的好网站](https://mp.weixin.qq.com/s/aBkS2z9gFWYel296UqD-uA)
 
+（6）[15款搜索引擎推荐！打开你的新世界！](https://mp.weixin.qq.com/s/9eT8tSUiniDxb6WtxhgNWQ)
+
 ## 七.其他娱乐类
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
