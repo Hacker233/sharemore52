@@ -8,6 +8,11 @@
 链接：https://pan.baidu.com/s/1GJ01-FZ0pFZiLkCwy4ZL8w
 提取码：x2v5
 
+（2）VueCli3实战项目之饿了么APP（完结）
+
+链接：https://pan.baidu.com/s/1kdioa2xd4SnTtVV07Xtvow
+提取码：ymwz
+
 ### 2.python
 
 （1）11周机器学习入门到入院全套教程
@@ -15,6 +20,15 @@
 链接: https://pan.baidu.com/s/1jQnjAFyrR9gzLBAjeZQxJg 
 
 提取码: jshe
+
+### 3.思维导图课
+
+（1）思维导图高频应用21天训练营
+
+百度：https://pan.baidu.com/s/1JDwJXY3CYonHx57pxJfjzw
+天翼：https://cloud.189.cn/t/7nEVZvIBjuAj
+微云：https://share.weiyun.com/cPgkyEJ6
+UC：https://www.yun.cn/s/6ed43bf71aa44f28903f146bf60e304b
 
 ## 二.公务员考试类
 
