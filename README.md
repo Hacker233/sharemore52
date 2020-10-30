@@ -135,6 +135,8 @@ UC：https://www.yun.cn/s/6ed43bf71aa44f28903f146bf60e304b
 
 （6）[15款搜索引擎推荐！打开你的新世界！](https://mp.weixin.qq.com/s/9eT8tSUiniDxb6WtxhgNWQ)
 
+（7）[你都见过哪些奇奇怪怪的网站？](https://mp.weixin.qq.com/s/NskWoIZOGGyNgrtXHyClRw)
+
 ## 七.其他娱乐类
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
