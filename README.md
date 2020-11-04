@@ -30,6 +30,13 @@
 微云：https://share.weiyun.com/cPgkyEJ6
 UC：https://www.yun.cn/s/6ed43bf71aa44f28903f146bf60e304b
 
+### 4.CAD
+
+（1）AutoCAD 2020零基础入门到精通
+
+百度盘：https://pan.baidu.com/s/1oDzajxtrSggeXmhJ0Y-QCw
+天翼云：https://cloud.189.cn/t/2yUVnmBz2222
+
 ## 二.公务员考试类
 
 ### 1. 国家公务员考试
