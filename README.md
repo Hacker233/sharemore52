@@ -158,6 +158,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 提取码: u0m9
 
+（5）超全ps教程，天翼云盘5T资源
+
+链接:https://cloud.189.cn/t/3UzABrRbU73e
+
 ### 2.室内设计
 
 （1）价值4600元的室内设计行业实战课
