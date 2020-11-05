@@ -234,6 +234,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 提取码：jdea
 
+（7）Office下载安装激活工具OInstall
+
+链接：https://cheat8.lanzous.com/i8mx9zc
+
 ## 六.网站推荐
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
@@ -249,6 +253,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 （6）[15款搜索引擎推荐！打开你的新世界！](https://mp.weixin.qq.com/s/9eT8tSUiniDxb6WtxhgNWQ)
 
 （7）[你都见过哪些奇奇怪怪的网站？](https://mp.weixin.qq.com/s/NskWoIZOGGyNgrtXHyClRw)
+
+（8）[10个高效软件工具网站！](https://mp.weixin.qq.com/s/tEvAtqUEi7NsD_NTzv4nOA)
 
 ## 七.其他娱乐类
 
