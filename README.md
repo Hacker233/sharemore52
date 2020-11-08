@@ -238,6 +238,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 链接：https://cheat8.lanzous.com/i8mx9zc
 
+（8）老司机发车！BT搜索下载神器！
+
+链接：https://www.lanzoui.com/ivYHmi0y60d
+
 ## 六.网站推荐
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
