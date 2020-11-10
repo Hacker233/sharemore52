@@ -266,6 +266,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
 
+（2）[100张4K超清动漫壁纸分享！](https://mp.weixin.qq.com/s/gNJCVd1fhk_EP5ZxCvGftw)
+
 ## 八.小说电子书类
 
 （1）金庸作品全集
