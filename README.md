@@ -37,6 +37,49 @@ UC：https://www.yun.cn/s/6ed43bf71aa44f28903f146bf60e304b
 百度盘：https://pan.baidu.com/s/1oDzajxtrSggeXmhJ0Y-QCw
 天翼云：https://cloud.189.cn/t/2yUVnmBz2222
 
+### 5.Office办公教程
+
+（1）风清扬Excel全套300集教程
+链接：https://pan.baidu.com/s/1eaSY38CmE5Pt5NOblVqBiQ 
+
+提取码：6bhy
+（2）Excel方方格子视频教程57集
+链接：https://pan.baidu.com/s/1Z12OHQMMbWcjf-J_85O3Gg 
+
+提取码：h3mp
+（3）excel函数公式特训班
+链接：https://pan.baidu.com/s/1SpeIxHRUVeDQeoREmBdV1Q 
+
+提取码：ko5f
+（4）唯库excel函数专项特训课
+链接：https://pan.baidu.com/s/1m7_DCwV7bqUGSsdFZWvlSA 
+
+提取码：yvsc
+（5）唯库excel教程16节课
+链接：https://pan.baidu.com/s/1932DejoA1L9EG5v-DEAfpw 
+
+提取码：0shg
+（6）教你零基础做出高逼格PPT
+https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ 
+
+提取码：cng7
+（7）职场ppt全通关
+链接：https://pan.baidu.com/s/11CUXfh5LGPsOclq_2vwdBA 
+
+提取码：8845
+（8）冯注龙的零基础Excel课程50集
+链接：https://pan.baidu.com/s/1eYyk_BUKSCANv95uOkbwHA 
+
+提取码：sr4d
+（9）冯注龙的零基础PPT教程100集
+链接：https://pan.baidu.com/s/1-Y2bgGaIqAEB4HiA9tJX5Q 
+
+提取码：hunx
+（10）冯注龙的零基础Word课程50集
+链接：https://pan.baidu.com/s/1OJ8VWmAcDjzu2IXwGxmQ9g 
+
+提取码：p9pm
+
 ## 二.公务员考试类
 
 ### 1. 国家公务员考试
