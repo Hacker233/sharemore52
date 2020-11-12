@@ -21,6 +21,12 @@
 
 提取码: jshe
 
+（2）Python爬虫+办公自动化+好玩DIY
+
+链接: https://pan.baidu.com/s/1RxSNctCMt_JybY-aXW5JXg 
+
+提取码: p19m
+
 ### 3.思维导图课
 
 （1）思维导图高频应用21天训练营
