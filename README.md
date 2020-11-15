@@ -327,6 +327,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （8）[干货！拯救你的书荒，10个免费书籍阅读下载网站推荐！](https://mp.weixin.qq.com/s/GY2cPaByHhURfeU7YqyNpQ)
 
+（8）[12个宝藏网站，每一个都让你惊讶！](https://mp.weixin.qq.com/s/suGSWfo8SbMa8mkQpE2_EA)
+
 ## 七.其他娱乐类
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
