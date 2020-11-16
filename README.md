@@ -331,6 +331,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （8）[12个宝藏网站，每一个都让你惊讶！](https://mp.weixin.qq.com/s/suGSWfo8SbMa8mkQpE2_EA)
 
+（9）[这些好用不火的软件你用过吗？](https://mp.weixin.qq.com/s/tV8jtl7zR5dWi6arQagG1w)
+
 ## 七.其他娱乐类
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
