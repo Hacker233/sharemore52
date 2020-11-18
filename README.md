@@ -15,6 +15,12 @@
 链接：https://pan.baidu.com/s/1kdioa2xd4SnTtVV07Xtvow
 提取码：ymwz
 
+（3）2020最新版React入门到大神（含视频、代码）
+
+链接：https://pan.baidu.com/s/18s7LiNqbMhyZSlPZdBdW_A
+
+提取码：52pj
+
 ### 2.python
 
 （1）11周机器学习入门到入院全套教程
