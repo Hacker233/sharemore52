@@ -1,9 +1,33 @@
-# 各类免费资料合集
-[TOC]
+- [ 各类免费资料合集](#head1)
+	- [ 一.互联网类](#head2)
+		- [ 1.前端](#head3)
+		- [ 2.python](#head4)
+		- [ 3.思维导图课](#head5)
+		- [ 4.CAD](#head6)
+		- [ 5.Office办公教程](#head7)
+		- [ 6.服务器相关](#head8)
+	- [ 二.公务员考试类](#head9)
+		- [1. 国家公务员考试](#head10)
+		- [ 2.省考](#head11)
+		- [ 3.2020事业单位ABCD](#head12)
+		- [ 4.2020公基+综合知识](#head13)
+	- [ 三.平面设计类](#head14)
+		- [ 1.Photoshop](#head15)
+		- [ 2.室内设计](#head16)
+	- [ 四.视频剪辑类](#head17)
+		- [ 1.视频剪辑](#head18)
+	- [ 五.福利软件类](#head19)
+	- [ 六.网站推荐](#head20)
+	- [ 七.其他娱乐类](#head21)
+	- [ 八.小说电子书类](#head22)
+- [ 官方获取渠道](#head23)
+- [ 【资料分享大师】](#head24)
+# <span id="head1"> 各类免费资料合集</span>
 
-## 一.互联网类
 
-### 1.前端
+## <span id="head2"> 一.互联网类</span>
+
+### <span id="head3"> 1.前端</span>
 
 （1）TypeScript 系统入门到项目实战
 
@@ -21,7 +45,7 @@
 
 提取码：52pj
 
-### 2.python
+### <span id="head4"> 2.python</span>
 
 （1）11周机器学习入门到入院全套教程
 
@@ -35,7 +59,7 @@
 
 提取码: p19m
 
-### 3.思维导图课
+### <span id="head5"> 3.思维导图课</span>
 
 （1）思维导图高频应用21天训练营
 
@@ -44,14 +68,14 @@
 微云：https://share.weiyun.com/cPgkyEJ6
 UC：https://www.yun.cn/s/6ed43bf71aa44f28903f146bf60e304b
 
-### 4.CAD
+### <span id="head6"> 4.CAD</span>
 
 （1）AutoCAD 2020零基础入门到精通
 
 百度盘：https://pan.baidu.com/s/1oDzajxtrSggeXmhJ0Y-QCw
 天翼云：https://cloud.189.cn/t/2yUVnmBz2222
 
-### 5.Office办公教程
+### <span id="head7"> 5.Office办公教程</span>
 
 （1）风清扬Excel全套300集教程
 链接：https://pan.baidu.com/s/1eaSY38CmE5Pt5NOblVqBiQ 
@@ -102,7 +126,7 @@ https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ
 
 提取码：p9pm
 
-### 6.服务器相关
+### <span id="head8"> 6.服务器相关</span>
 
 （1）Tomcat核心原理解析，带你走进服务器的世界！
 
@@ -110,9 +134,9 @@ https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ
 
 提取码：cavc
 
-## 二.公务员考试类
+## <span id="head9"> 二.公务员考试类</span>
 
-### 1. 国家公务员考试
+### <span id="head10">1. 国家公务员考试</span>
 
 | 【FB】2021国考系统班一期 https://pan.baidu.com/s/1YUwKA1aLKy1ylrb5D36BVw 提取码: p8vt |
 | ------------------------------------------------------------ |
@@ -141,7 +165,7 @@ https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ
 | 【半月谈】大作文开头结尾模板（视频+讲义） https://pan.baidu.com/s/1PbvkE_5Xe7g0MJ6aki6dRg 提取码: t4wk |
 | 2020国考公安专业冲刺班链接：https://pan.baidu.com/s/1BL3WMFDDBkJPhPIZO176GA提取码：35vm |
 
-### 2.省考
+### <span id="head11"> 2.省考</span>
 
 2021省考联考笔试系统班
 
@@ -171,7 +195,7 @@ https://pan.baidu.com/s/1sURA_9BOYLMYvTFnIehUrA 提取码: mup7
 
 https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
-### 3.2020事业单位ABCD
+### <span id="head12"> 3.2020事业单位ABCD</span>
 
 | 【粉笔】2020上半年事业单位职业能力+综合应用（综合管理A类）链接：https://pan.baidu.com/s/14rW01KWG07dqaLxmokN2vg提取码：diaq链接：https://pan.baidu.com/s/1qejETZurzLINDFCsVflNtQ提取码：r8u6 |
 | ------------------------------------------------------------ |
@@ -189,7 +213,7 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 | 【华图】2020事业单位考试（综合管理D类）链接：https://pan.baidu.com/s/1Pl7ZOlU5cWv4r5wM2un-uQ提取码：ap2q |
 | 【华图】2020事业单位考试（综合管理D类）全程班链接：https://pan.baidu.com/s/1ft0oEMutZTKfC3rVHP2vkg提取码：f5fj |
 
-### 4.2020公基+综合知识
+### <span id="head13"> 4.2020公基+综合知识</span>
 
 | 【粉笔】2020四川综合知识链接：https://pan.baidu.com/s/1r11ShqelJ1FflIrLKgUmMw 提取码：7zof |
 | ------------------------------------------------------------ |
@@ -214,9 +238,9 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 | 2020事业-公基高频错题本（1500题+解析）链接：https://pan.baidu.com/s/1dEPhY2qSAkCrd6Ob4jQnpg提取码：r42b |
 | 2018-2019公基预测模拟2640题+解析链接：https://pan.baidu.com/s/1BoFbQRMvj1QyzjDhU4j_pQ提取码：7pe5 |
 
-## 三.平面设计类
+## <span id="head14"> 三.平面设计类</span>
 
-### 1.Photoshop
+### <span id="head15"> 1.Photoshop</span>
 
 （1）[2020最新敬伟photoshop教程全套视频+素材！](https://mp.weixin.qq.com/s/uMbLYxIGNrTuM68ZideVUg)
 
@@ -242,7 +266,7 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 链接:https://cloud.189.cn/t/3UzABrRbU73e
 
-### 2.室内设计
+### <span id="head16"> 2.室内设计</span>
 
 （1）价值4600元的室内设计行业实战课
 
@@ -256,9 +280,9 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 提取码: s9r7
 
-## 四.视频剪辑类
+## <span id="head17"> 四.视频剪辑类</span>
 
-### 1.视频剪辑
+### <span id="head18"> 1.视频剪辑</span>
 
 （1）向天歌李兴兴的pr教程和素材
 
@@ -270,7 +294,7 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 链接：https://pan.baidu.com/s/1KA2uxbmYQbUcO3WwMwwjbw
 提取码：2v93
 
-## 五.福利软件类
+## <span id="head19"> 五.福利软件类</span>
 
 （1）【绿色软件】扫描全能王全功能版
 
@@ -315,7 +339,7 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 链接：https://www.lanzoui.com/ivYHmi0y60d
 
-## 六.网站推荐
+## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
 
@@ -339,13 +363,13 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （9）[这些好用不火的软件你用过吗？](https://mp.weixin.qq.com/s/tV8jtl7zR5dWi6arQagG1w)
 
-## 七.其他娱乐类
+## <span id="head21"> 七.其他娱乐类</span>
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
 
 （2）[100张4K超清动漫壁纸分享！](https://mp.weixin.qq.com/s/gNJCVd1fhk_EP5ZxCvGftw)
 
-## 八.小说电子书类
+## <span id="head22"> 八.小说电子书类</span>
 
 （1）金庸作品全集
 
@@ -362,9 +386,9 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 
 
-# 官方获取渠道
+# <span id="head23"> 官方获取渠道</span>
 
-# 【资料分享大师】
+# <span id="head24"> 【资料分享大师】</span>
 
 官方微信交流群：人数较多，加小编微信备注“加群”,小编ID：LHQfighting。
 
