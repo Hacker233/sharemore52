@@ -369,6 +369,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （2）[100张4K超清动漫壁纸分享！](https://mp.weixin.qq.com/s/gNJCVd1fhk_EP5ZxCvGftw)
 
+（3）[LOL超高清4K画质英雄原画壁纸来了！](https://mp.weixin.qq.com/s/953j4IsbaolSBs4m6v0A9Q)
+
 ## <span id="head22"> 八.小说电子书类</span>
 
 （1）金庸作品全集
