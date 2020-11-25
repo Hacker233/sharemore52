@@ -45,6 +45,12 @@
 
 提取码：52pj
 
+（4）【跨平台开发】uni-app项目实战教程
+
+链接：https://pan.baidu.com/s/1z71g468epGNevpPk1J2MXg
+
+提取码：52pj 
+
 ### <span id="head4"> 2.python</span>
 
 （1）11周机器学习入门到入院全套教程
