@@ -345,6 +345,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 链接：https://www.lanzoui.com/ivYHmi0y60d
 
+（9）[【建议收藏】15款特性十足的windows软件！](https://mp.weixin.qq.com/s/DXw7Ww23r8DTeVUvIi5w0Q)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
