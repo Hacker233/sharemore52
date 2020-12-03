@@ -347,6 +347,16 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （9）[【建议收藏】15款特性十足的windows软件！](https://mp.weixin.qq.com/s/DXw7Ww23r8DTeVUvIi5w0Q)
 
+（10）【Windowns】Office2021官网版（尝鲜专用）
+
+官网链接：[官网](https://c2rsetup.officeapps.live.com/c2r/download.aspx?productReleaseID=O365ProPlusRetail&platform=Def&language=zh-cn&TaxRegion=sg&correlationId=c74bdc19-e4fb-47c4-a8e5-4e3e7de94f3c&token=0d025ba5-b941-4412-b9f6-142d1d680c2e&version=O16GA&source=O15OLSO365&Br=2)
+
+链接:https://pan.baidu.com/s/1T8OVXDv9fPU3fXEgZGurcg 
+
+提取码: dcq8 
+
+其他下载地址：https://ws28.cn/f/42ukn2l4bji
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
