@@ -362,6 +362,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （11）[推荐7个值得收藏的创意学习宝藏APP](https://mp.weixin.qq.com/s/KuO_iXpEWWgx2We_0FjGeQ)
 
+（12）[5款神仙软件，让你的win10变得无比美丽！](https://mp.weixin.qq.com/s/16V2GaNk3jiyXM87LZ8eAA)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
