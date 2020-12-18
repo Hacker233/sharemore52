@@ -364,6 +364,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （12）[5款神仙软件，让你的win10变得无比美丽！](https://mp.weixin.qq.com/s/16V2GaNk3jiyXM87LZ8eAA)
 
+（13）[解锁VIP！全网影视蓝光资源免费看！](https://mp.weixin.qq.com/s/O4OmIaangr8VNlFZ0RuYyA)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
