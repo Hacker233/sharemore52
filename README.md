@@ -390,6 +390,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （9）[这些好用不火的软件你用过吗？](https://mp.weixin.qq.com/s/tV8jtl7zR5dWi6arQagG1w)
 
+（10）[10个精品软件下载网，各种破解软件、优质资源统统满足你！](https://mp.weixin.qq.com/s/gvAVPmcr9mkF3xZQ1zjxHA)
+
 ## <span id="head21"> 七.其他娱乐类</span>
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
