@@ -392,6 +392,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （10）[10个精品软件下载网，各种破解软件、优质资源统统满足你！](https://mp.weixin.qq.com/s/gvAVPmcr9mkF3xZQ1zjxHA)
 
+（11）[7个免费在线PS网站推荐！](https://mp.weixin.qq.com/s/JZuXJbCvvTuzkXtepO6Qew)
+
 ## <span id="head21"> 七.其他娱乐类</span>
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
