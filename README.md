@@ -402,6 +402,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （13）[10个程序员摸鱼必备网站！](https://mp.weixin.qq.com/s/JgQ5PUaGvnTPtEMQcwHjog)
 
+（14）[程序员都在这些地方赚外快！](https://mp.weixin.qq.com/s/OB9vTn4xmreNbt020q6BQg)
+
 ## <span id="head21"> 七.其他娱乐类</span>
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
