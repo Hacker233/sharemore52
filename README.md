@@ -368,6 +368,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （14）[周公解梦大全](https://mp.weixin.qq.com/s/Gd9QaxAAqY3-0EEWwgmvaQ)
 
+（15）[番茄小说会员版！](https://mp.weixin.qq.com/s/HyhnEhQwagz4zy9Ps0bIcw)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
