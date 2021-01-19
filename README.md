@@ -370,6 +370,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （15）[番茄小说会员版！](https://mp.weixin.qq.com/s/HyhnEhQwagz4zy9Ps0bIcw)
 
+（16）[全网音乐免费听！(破解绿色版)](https://likeenjoy.top/thread/30)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
