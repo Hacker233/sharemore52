@@ -372,6 +372,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （16）[全网音乐免费听！(破解绿色版)](https://likeenjoy.top/thread/30)
 
+（17）[文库下载神器！冰点！](https://www.lanzoux.com/ix4Rjkspm2h)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
