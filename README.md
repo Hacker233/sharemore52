@@ -374,6 +374,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （17）[文库下载神器！冰点！](https://www.lanzoux.com/ix4Rjkspm2h)
 
+（18）[百度网盘搜索神器！可查提取码！](https://mp.weixin.qq.com/s/rjWWud26aoAIik3mKraIlw)
+
+（19）[爱剪辑绿色版！解锁会员素材！](https://mp.weixin.qq.com/s/UZNu9BOROc9aShirWXihew)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
