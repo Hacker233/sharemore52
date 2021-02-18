@@ -289,6 +289,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 提取码: s9r7
 
+### 3.AE+PR
+
+（1）[【免费】AE+PR高能秘籍课程全套资源！](https://likeenjoy.top/thread/51)
+
 ## <span id="head17"> 四.视频剪辑类</span>
 
 ### <span id="head18"> 1.视频剪辑</span>
