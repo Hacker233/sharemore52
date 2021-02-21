@@ -384,6 +384,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （19）[爱剪辑绿色版！解锁会员素材！](https://mp.weixin.qq.com/s/UZNu9BOROc9aShirWXihew)
 
+（20）[搜书大师！破解VIP完美版！](https://likeenjoy.top/thread/55)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
