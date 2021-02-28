@@ -388,6 +388,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （21）[冬瓜影视！影视追剧神器！](https://likeenjoy.top/thread/56)
 
+（22）[完全免费的听书神器](https://likeenjoy.top/thread/58)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
