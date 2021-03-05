@@ -426,6 +426,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （14）[程序员都在这些地方赚外快！](https://mp.weixin.qq.com/s/OB9vTn4xmreNbt020q6BQg)
 
+（15）[影视资源合集](https://mp.weixin.qq.com/s/cPDjnAr1ISDvk2XBtqnxCg)
+
 ## <span id="head21"> 七.其他娱乐类</span>
 
 （1）[王者荣耀英雄全套高清图片！](https://mp.weixin.qq.com/s/Q_KdPMwPhHGgXMabzFp3MA)
