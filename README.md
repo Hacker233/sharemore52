@@ -145,6 +145,10 @@ https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ
 
 提取码：cavc
 
+### 8.算法类
+
+（1）[算法全套教程！涵盖主流编程语言！](https://mp.weixin.qq.com/s/em0jO1WrW5Mt-CC-xDCI8Q)
+
 ## <span id="head9"> 二.公务员考试类</span>
 
 ### <span id="head10">1. 国家公务员考试</span>
@@ -391,6 +395,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 （22）[完全免费的听书神器](https://likeenjoy.top/thread/58)
 
 （23）[抖音国际版TikTok最新版分享](https://likeenjoy.top/thread/60)
+
+（24）[宇宙影视！全网4K VIP资源免费看！](https://likeenjoy.top/thread/63)
 
 ## <span id="head20"> 六.网站推荐</span>
 
