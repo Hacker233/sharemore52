@@ -398,6 +398,8 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 （24）[宇宙影视！全网4K VIP资源免费看！](https://likeenjoy.top/thread/63)
 
+（25）[全能扫描王](https://likeenjoy.top/thread/64)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
