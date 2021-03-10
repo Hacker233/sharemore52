@@ -149,6 +149,14 @@ https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ
 
 （1）[算法全套教程！涵盖主流编程语言！](https://mp.weixin.qq.com/s/em0jO1WrW5Mt-CC-xDCI8Q)
 
+### 9.Java
+
+（1）[Google面试官亲授！Java面试新手尊享课程！](https://likeenjoy.top/thread/65)
+
+### 10.人工智能/AI
+
+（1）[AI人工智能课程](https://likeenjoy.top/thread/66)
+
 ## <span id="head9"> 二.公务员考试类</span>
 
 ### <span id="head10">1. 国家公务员考试</span>
