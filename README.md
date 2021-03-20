@@ -137,6 +137,10 @@ https://pan.baidu.com/s/1O--CjqA1d1jEVZqMSn-VuQ
 
 提取码：p9pm
 
+（11）Excel入门到精通教程+课件
+
+https://likeenjoy.top/thread/74
+
 ### <span id="head8"> 6.服务器相关</span>
 
 （1）Tomcat核心原理解析，带你走进服务器的世界！
@@ -289,6 +293,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 
 链接:https://cloud.189.cn/t/3UzABrRbU73e
 
+（6）Photoshop设计全套教程
+
+https://likeenjoy.top/thread/70
+
 ### <span id="head16"> 2.室内设计</span>
 
 （1）价值4600元的室内设计行业实战课
@@ -409,6 +417,10 @@ https://pan.baidu.com/s/1Gqn0r4vmRo3evRTsgyiVHg 提取码: zfzf
 （25）[全能扫描王](https://likeenjoy.top/thread/64)
 
 （26）[2000+电视直播台免费看！](https://likeenjoy.top/thread/68)
+
+（27）[麻花影视 v1.2.8 去广告会员版](https://likeenjoy.top/thread/69)
+
+（28）[【soso】音乐整合软件！免费听超多音乐！](https://likeenjoy.top/thread/73)
 
 ## <span id="head20"> 六.网站推荐</span>
 
