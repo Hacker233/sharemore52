@@ -56,6 +56,8 @@
 
 提取码：52pj 
 
+（5）[前端入门到项目实战全套](https://likeenjoy.top/thread/80)
+
 ### <span id="head4"> 2.python</span>
 
 （1）11周机器学习入门到入院全套教程
@@ -315,6 +317,10 @@ https://likeenjoy.top/thread/70
 
 （1）[【免费】AE+PR高能秘籍课程全套资源！](https://likeenjoy.top/thread/51)
 
+### 4.CAD
+
+（1）[AutoCAD 2020入门到精通教程](https://likeenjoy.top/thread/82)
+
 ## <span id="head17"> 四.视频剪辑类</span>
 
 ### <span id="head18"> 1.视频剪辑</span>
@@ -421,6 +427,10 @@ https://likeenjoy.top/thread/70
 （27）[麻花影视 v1.2.8 去广告会员版](https://likeenjoy.top/thread/69)
 
 （28）[【soso】音乐整合软件！免费听超多音乐！](https://likeenjoy.top/thread/73)
+
+（29）[汉堡影视！解锁VIP！全网视频免费看！](https://likeenjoy.top/thread/78)
+
+（30）[UPX浏览器，突破网络限制！](https://likeenjoy.top/thread/83)
 
 ## <span id="head20"> 六.网站推荐</span>
 
