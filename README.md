@@ -434,6 +434,14 @@ https://likeenjoy.top/thread/70
 
 （31）[【友兔】免翻上油管！突破限制！](https://likeenjoy.top/thread/86)
 
+（32）[太空影视！解所全网VIP影视！自带破解！](https://likeenjoy.top/thread/88)
+
+（33）[飞鸟搜书！全网搜书免费无广告！](https://likeenjoy.top/thread/91)
+
+（34）[雨见浏览器！](https://likeenjoy.top/thread/92)
+
+（35）[【酷我音乐】豪华VIP版](https://likeenjoy.top/thread/95)
+
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
