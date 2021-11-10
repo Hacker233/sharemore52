@@ -25,7 +25,8 @@
 - [<span id="head23"> 官方获取渠道</span>](#-span-id--head23-----------span-)
 - [<span id="head24"> 【资料分享大师】</span>](#-span-id--head24-------------span-)
 
-# 【官方交流网站】[有享](https://likeenjoy.top/)
+# 【官方交流网站】[有享](https://likeenjoy.top/) （已下线）
+新开源网站：https://smallpig.site/
 
 # <span id="head1"> 各类免费资料合集</span>
 
