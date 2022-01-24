@@ -27,6 +27,7 @@
 
 # 【官方交流网站】[有享](https://likeenjoy.top/) （已下线）
 新开源网站：https://smallpig.site/
+微信小程序：【科技趣玩】
 
 # <span id="head1"> 各类免费资料合集</span>
 
