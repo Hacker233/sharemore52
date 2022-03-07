@@ -30,6 +30,7 @@
 
 # <span id="head1"> 各类免费资料合集</span>
 关注【资料分享大师】，获取以下资源
+![资料分享大师](https://github.com/Hacker233/sharemore52/blob/master/%E3%80%90%E8%B5%84%E6%96%99%E5%88%86%E4%BA%AB%E5%A4%A7%E5%B8%88%E3%80%91VIP%E5%B0%8A%E4%BA%AB.jpg)
 
 
 ## <span id="head2"> 一.互联网类</span>
