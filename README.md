@@ -540,58 +540,6 @@ https://likeenjoy.top/thread/70
 
 提取码: dcq8 
 
-其他下载地址：https://ws28.cn/f/42ukn2l4bji
-
-（11）[推荐7个值得收藏的创意学习宝藏APP](https://mp.weixin.qq.com/s/KuO_iXpEWWgx2We_0FjGeQ)
-
-（12）[5款神仙软件，让你的win10变得无比美丽！](https://mp.weixin.qq.com/s/16V2GaNk3jiyXM87LZ8eAA)
-
-（13）[解锁VIP！全网影视蓝光资源免费看！](https://mp.weixin.qq.com/s/O4OmIaangr8VNlFZ0RuYyA)
-
-（14）[周公解梦大全](https://mp.weixin.qq.com/s/Gd9QaxAAqY3-0EEWwgmvaQ)
-
-（15）[番茄小说会员版！](https://mp.weixin.qq.com/s/HyhnEhQwagz4zy9Ps0bIcw)
-
-（16）[全网音乐免费听！(破解绿色版)](https://likeenjoy.top/thread/30)
-
-（17）[文库下载神器！冰点！](https://www.lanzoux.com/ix4Rjkspm2h)
-
-（18）[百度网盘搜索神器！可查提取码！](https://mp.weixin.qq.com/s/rjWWud26aoAIik3mKraIlw)
-
-（19）[爱剪辑绿色版！解锁会员素材！](https://mp.weixin.qq.com/s/UZNu9BOROc9aShirWXihew)
-
-（20）[搜书大师！破解VIP完美版！](https://likeenjoy.top/thread/55)
-
-（21）[冬瓜影视！影视追剧神器！](https://likeenjoy.top/thread/56)
-
-（22）[完全免费的听书神器](https://likeenjoy.top/thread/58)
-
-（23）[抖音国际版TikTok最新版分享](https://likeenjoy.top/thread/60)
-
-（24）[宇宙影视！全网4K VIP资源免费看！](https://likeenjoy.top/thread/63)
-
-（25）[全能扫描王](https://likeenjoy.top/thread/64)
-
-（26）[2000+电视直播台免费看！](https://likeenjoy.top/thread/68)
-
-（27）[麻花影视 v1.2.8 去广告会员版](https://likeenjoy.top/thread/69)
-
-（28）[【soso】音乐整合软件！免费听超多音乐！](https://likeenjoy.top/thread/73)
-
-（29）[汉堡影视！解锁VIP！全网视频免费看！](https://likeenjoy.top/thread/78)
-
-（30）[UPX浏览器，突破网络限制！](https://likeenjoy.top/thread/83)
-
-（31）[【友兔】免翻上油管！突破限制！](https://likeenjoy.top/thread/86)
-
-（32）[太空影视！解所全网VIP影视！自带破解！](https://likeenjoy.top/thread/88)
-
-（33）[飞鸟搜书！全网搜书免费无广告！](https://likeenjoy.top/thread/91)
-
-（34）[雨见浏览器！](https://likeenjoy.top/thread/92)
-
-（35）[【酷我音乐】豪华VIP版](https://likeenjoy.top/thread/95)
-
 ## <span id="head20"> 六.网站推荐</span>
 
 （1）[【精心挑选】9个杂志小说网站~](https://mp.weixin.qq.com/s/AFPq86spTyDSfebUiwyJrQ)
