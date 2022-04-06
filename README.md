@@ -1,8 +1,10 @@
-# 声明：
+# 【资料分享大师】精品资源分享
+
+## 声明：
 
 此文章分享的所有内容均来自互联网，您必须要下载24小时内删除，本篇文章只是采集链接，如若侵权，联系删除！
 
-# 1.交流渠道
+### 1.交流渠道
 
 | 微信公众号     | 资料分享大师                                                 |
 | :------------- | :----------------------------------------------------------- |
@@ -22,9 +24,9 @@
 ![科技趣玩](https://github.com/Hacker233/sharemore52/blob/master/%E5%B0%8F%E7%A8%8B%E5%BA%8F%E4%BA%8C%E7%BB%B4%E7%A0%81.jpg)
 
 
-# 2.软件分享
+## 2.软件分享
 
-## 2.1 影视软件
+### 2.1 影视软件
 
 | AH视频           | [城通网盘](https://url33.ctfile.com/f/13370233-563557595-b82181)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f9fd89aafd89) |
 | :--------------- | :----------------------------------------------------------- |
@@ -57,7 +59,7 @@
 | 觅影纯净版       | [城通网盘](https://url33.ctfile.com/f/13370233-538179680-599c55) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3b4c91514e7f) |
 | CliCli 动漫      | [城通网盘](https://url33.ctfile.com/f/13370233-536551827-f34487) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/595eaacda059) |
 
-## 2.2 电视盒子软件
+### 2.2 电视盒子软件
 
 | 迷影视                  | [城通网盘](https://url33.ctfile.com/f/13370233-563404631-4261f1)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5bf642533806) |
 | :---------------------- | :----------------------------------------------------------- |
@@ -88,7 +90,7 @@
 | 猫影视 TV               | [城通网盘](https://url33.ctfile.com/f/13370233-539180959-39c3fe) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/c07b30e73262) |
 | 小鲸电视                | [城通网盘](https://url33.ctfile.com/f/13370233-534583810-c34118) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/2f9df2d99e5e) |
 
-## 2.3 工具软件
+### 2.3 工具软件
 
 | 小马游戏模拟器       | [城通网盘](https://url33.ctfile.com/f/13370233-563403689-d60f77)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/23e2673b0d37) |
 | :------------------- | :----------------------------------------------------------- |
@@ -110,7 +112,7 @@
 | 网盘搜索             | [城通网盘](https://url33.ctfile.com/f/13370233-537764541-2e4ef9) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/c744a1164fac) |
 | pikpak               | [城通网盘](https://url33.ctfile.com/f/13370233-534774229-f475c0) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/55a344afd70a) |
 
-## 2.4 小说阅读软件
+### 2.4 小说阅读软件
 
 | 启阅，支持听书+看书 | [城通网盘](https://url33.ctfile.com/f/13370233-554046071-da768b)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0e8dd326837c) |
 | :------------------ | :----------------------------------------------------------- |
@@ -119,7 +121,7 @@
 | 老白故事            | [城通网盘](https://url33.ctfile.com/f/13370233-538766921-2fcbd0) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/95e01bec82e6) |
 | 小呆阅读            | [城通网盘](https://url33.ctfile.com/f/13370233-534160339-f5808d) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/d052d73b41b1) |
 
-## 2.5 音乐软件
+### 2.5 音乐软件
 
 | 听下             | [城通网盘](https://url33.ctfile.com/f/13370233-561117321-27d4d8)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e27fd8290c95) |
 | :--------------- | :----------------------------------------------------------- |
@@ -128,15 +130,15 @@
 | Myradio 全球电台 | [城通网盘](https://url33.ctfile.com/f/13370233-542421127-bc414f) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5000a1f28b24) |
 | QMD 无损音乐     | [城通网盘](https://url33.ctfile.com/f/13370233-539855904-ea6540) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/a2611be4abf7) |
 
-## 2.6 动漫软件
+### 2.6 动漫软件
 
 | 荔枝动漫 | [城通网盘](https://url33.ctfile.com/f/13370233-556902125-8d40a4)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/fcdde8d7e772) |
 | :------- | :----------------------------------------------------------- |
 | 嘀嘀动漫 | [城通网盘](https://url33.ctfile.com/f/13370233-551374514-d00801) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/4c793014bad7) |
 
-# 3.编程资源
+## 3.编程资源
 
-## 3.1 前端
+### 3.1 前端
 
 | JavaScript 深度剖析                            | [阿里云盘](https://www.aliyundrive.com/s/YofNTN7NSHK)        |
 | :--------------------------------------------- | :----------------------------------------------------------- |
@@ -157,7 +159,7 @@
 | 《前端框架及项目面试－聚焦Vue3/React/Webpack》 | [百度网盘](https://pan.baidu.com/s/1o0YrvguZSIM4Nl8vjZHxBw)<br>提取码: 7gr6 |
 | Web前端高级工程师                              | [阿里云盘](https://www.aliyundrive.com/s/DsJXosD4zJL)        |
 
-## 3.2 后端
+### 3.2 后端
 
 | Java 面试突击 100 道                        | [阿里云盘](https://www.aliyundrive.com/s/CJRgk7SEBRd) |
 | :------------------------------------------ | :---------------------------------------------------- |
@@ -170,9 +172,9 @@
 | 尚硅谷Kubernetes教程                        | [阿里云盘](https://www.aliyundrive.com/s/UTEyhPM5KY2) |
 | 韩顺平 2021零基础学Java                     | [阿里云盘](https://www.aliyundrive.com/s/BinVho3uQpD) |
 
-# 4.设计资源
+## 4.设计资源
 
-## 3.1 Photoshop
+### 3.1 Photoshop
 
 | 100 节 PS 高级特训班教程                                     | [阿里云盘](https://www.aliyundrive.com/s/uYHtUMqCf1T)        |
 | :----------------------------------------------------------- | :----------------------------------------------------------- |
@@ -183,20 +185,20 @@
 | 2022全新升级大神笔刷合集，厚涂插画CG水彩水墨素描肌理人物手绘素材 | [百度网盘](https://pan.baidu.com/share/init?surl=CCVCVDvnxNyMcRcPkTz0Fw&pwd=jwsd)<br>提取码：jwsd |
 | Photoshop学习付费课程(Photoshop2021)                         | [阿里云盘](https://www.aliyundrive.com/s/KNndpZJbf1p)<br>提取码: 8jp7 |
 
-## 3.2 CAD
+### 3.2 CAD
 
 | CAD2021 最全学习教程               | [阿里云盘](https://www.aliyundrive.com/s/bjjEW5CQRaD)        |
 | :--------------------------------- | :----------------------------------------------------------- |
 | 15天进阶CAD高手（126节课高清教程） | [阿里云盘](https://www.aliyundrive.com/s/7ywcSAHq4n5)<br>提取码：Nfl2 |
 | 2021小白的C4D零基础入门课站酷马蠡  | 链接: [https://pan.baidu.com/s/1zamqGXXhmoIdAso6mUJRdA](https://pan.baidu.com/s/1zamqGXXhmoIdAso6mUJRdA) 提取码: e232<br>链接: [https://pan.baidu.com/s/1wlTBusC2io5o0xSVVvdHrw](https://pan.baidu.com/s/1wlTBusC2io5o0xSVVvdHrw) 提取码: 7a89<br>第一部分解压密码：HGpugEgsuL3C5V ，第二部分解压密码：nT6kgRHEmCmD6F |
 
-## 3.3 AE
+### 3.3 AE
 
 | 虎课网-零基础学习 AE          | [阿里网盘](https://www.aliyundrive.com/s/rHhCARFcZHr)        |
 | :---------------------------- | :----------------------------------------------------------- |
 | 【AE+PR+C4D教程1000集】最全面 | [阿里云盘](https://www.aliyundrive.com/s/f2N1UUpJHSX)<br>提取码: iq64 |
 
-## 3.4 PR
+### 3.4 PR
 
 | 最牛 pr 剪辑教程        | [阿里云盘](https://www.aliyundrive.com/s/LAHTt8TEJCv) |
 | :---------------------- | :---------------------------------------------------- |
@@ -204,17 +206,17 @@
 | 【PR教程】付费教程169集 | [阿里云盘](https://www.aliyundrive.com/s/SK1XTsos5C6) |
 | Premiere视频教程        | [阿里云盘](https://www.aliyundrive.com/s/CLrbB4ANBcy) |
 
-## 3.5 MATLAB
+### 3.5 MATLAB
 
 | 7 天学会数学建模及 MATLAB 编程 | [阿里云盘](https://www.aliyundrive.com/s/J8ZfzefQzBH) |
 | :----------------------------- | :---------------------------------------------------- |
 
-## 3.6 AI
+### 3.6 AI
 
 | 优设手绘基础课程-橙子老师 AI 插画 | [阿里云盘](https://www.aliyundrive.com/s/Y1xJzSMT6FR) |
 | :-------------------------------- | :---------------------------------------------------- |
 
-# 5.公务员考试
+## 5.公务员考试
 
 【粉笔】2021福建事业单位    阿里链接：[阿里云盘](https://www.aliyundrive.com/s/qZkvue5NmNz)
 
@@ -502,7 +504,7 @@
 
 2020省考模考大赛第34期终极模考     阿里链接：[阿里云盘](https://www.aliyundrive.com/s/VM75B9e5uTy)
 
-# 6.完整资源（更新服务）
+## 6.完整资源（更新服务）
 
 **享受更新服务，资源池将会越来越大！**
 
