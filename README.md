@@ -28,41 +28,53 @@
 
 ### 2.1 影视软件
 
-| 绿茶影视         | [城通网盘](https://url33.ctfile.com/f/13370233-564916295-64f308)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/cdc5fac9505f) |
-| :--------------- | :----------------------------------------------------------- |
-| 流星视频         | [城通网盘](https://url33.ctfile.com/f/13370233-563704738-fd065d)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f55cf096d411) |
-| AH视频           | [城通网盘](https://url33.ctfile.com/f/13370233-563557595-b82181)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f9fd89aafd89) |
-| 易看Pro          | [城通网盘](https://url33.ctfile.com/f/13370233-562429153-8b88da)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/42cee3f14507) |
-| 影音猎手         | [城通网盘](https://url33.ctfile.com/f/13370233-562052249-1fd777)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/a19d79698054) |
-| 哔哩哔哩纯净版   | [城通网盘](https://url33.ctfile.com/f/13370233-561793905-d35355)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/b00aa6ed9848) |
-| 美剧鸟           | [城通网盘](https://url33.ctfile.com/f/13370233-560652948-b97e15)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e49797395faf) |
-| 歪歪影视         | [城通网盘](https://url33.ctfile.com/f/13370233-556995199-8b36c9)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/82cc146b7921) |
-| 奇侠影视         | [城通网盘](https://url33.ctfile.com/f/13370233-556670438-c4118c)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f8282899a6b7) |
-| 日剧天堂         | [城通网盘](https://url33.ctfile.com/f/13370233-556244752-bc4090)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/c7c427ab045e) |
-| 影视猫 Plus      | [城通网盘](https://url33.ctfile.com/f/13370233-553461194-86572a) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0bd69ec69458) |
-| 海阔视界         | [城通网盘](https://url33.ctfile.com/f/13370233-552790349-c989c8) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/bc44b3c914a8) |
-| 火龙果影视       | [城通网盘](https://url33.ctfile.com/f/13370233-552635663-51ced7) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/6b2d187350d4) |
-| 美剧巴士         | [城通网盘](https://url33.ctfile.com/f/13370233-546300166-1d2bc7) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/b1f9a463947a) |
-| 大海影视         | [城通网盘](https://url33.ctfile.com/f/13370233-546160075-1cfcfd) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/96d0d75dcb89) |
-| 番茄影视         | [城通网盘](https://url33.ctfile.com/f/13370233-545972740-400a17) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/64997f20078c) |
-| 淘剧社           | [城通网盘](https://url33.ctfile.com/f/13370233-544435450-54215c) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/9ced2883cd68) |
-| 哔嘀影视         | [城通网盘](https://url33.ctfile.com/f/13370233-543415907-3acab6) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e1c7866cbb0f) |
-| 天空影视（安卓） | [城通网盘](https://url33.ctfile.com/f/13370233-542668925-119f07) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/86904bdc6ce5) |
-| 天空影视（TV）   | [城通网盘](https://url33.ctfile.com/f/13370233-542668916-a24019) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/8d87bd2ca4e0) |
-| 每天看看         | [城通网盘](https://url33.ctfile.com/f/13370233-542551921-ac7982) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3b21b6ce87e2) |
-| 4K 影院          | [城通网盘](https://url33.ctfile.com/f/13370233-542236901-e67612) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/8c3d50b5d4c7) |
-| 奇奇动画         | [城通网盘](https://url33.ctfile.com/f/13370233-542215121-cf0c56) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/92c6493f2215) |
-| 好猫影视         | [城通网盘](https://url33.ctfile.com/f/13370233-540794336-ba8e40) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3d4d026222e0) |
-| 次元站           | [城通网盘](https://url33.ctfile.com/f/13370233-540223453-15471e) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/104f5175f8e7) |
-| 简易影视         | [城通网盘](https://url33.ctfile.com/f/13370233-539483671-303e5a) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5c7ccec1cc24) |
-| 火龙果影视       | [城通网盘](https://url33.ctfile.com/f/13370233-539345914-e1cfc1) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f3a2c8873b5e) |
-| 易看 Pro         | [城通网盘](https://url33.ctfile.com/f/13370233-538550035-0afd30) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/a2a109fdcdca) |
-| 元宇宙影视       | [城通网盘](https://url33.ctfile.com/f/13370233-538195719-1c49dc) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/02dbce72d2f9) |
+| 乐乐影视           | [城通网盘](https://url33.ctfile.com/f/13370233-573347278-f74075?p=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/67a9180dd604) |
+| :----------------- | :----------------------------------------------------------- |
+| 荐片               | [城通网盘](https://url33.ctfile.com/f/13370233-572800670-f108e9?pwd=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/00971b219043) |
+| 影视森林           | [城通网盘](https://url33.ctfile.com/f/13370233-569086887-e1edc1)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/62fca1b7c270) |
+| 影视猫 Plus_v4.1.1 | [城通网盘](https://url33.ctfile.com/f/13370233-568229896-8f7dfd)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/54378d7259c1) |
+| 绿茶影视           | [城通网盘](https://url33.ctfile.com/f/13370233-564916295-64f308)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/cdc5fac9505f) |
+| 流星视频           | [城通网盘](https://url33.ctfile.com/f/13370233-563704738-fd065d)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f55cf096d411) |
+| AH视频             | [城通网盘](https://url33.ctfile.com/f/13370233-563557595-b82181)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f9fd89aafd89) |
+| 易看Pro            | [城通网盘](https://url33.ctfile.com/f/13370233-562429153-8b88da)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/42cee3f14507) |
+| 影音猎手           | [城通网盘](https://url33.ctfile.com/f/13370233-562052249-1fd777)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/a19d79698054) |
+| 哔哩哔哩纯净版     | [城通网盘](https://url33.ctfile.com/f/13370233-561793905-d35355)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/b00aa6ed9848) |
+| 美剧鸟             | [城通网盘](https://url33.ctfile.com/f/13370233-560652948-b97e15)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e49797395faf) |
+| 歪歪影视           | [城通网盘](https://url33.ctfile.com/f/13370233-556995199-8b36c9)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/82cc146b7921) |
+| 奇侠影视           | [城通网盘](https://url33.ctfile.com/f/13370233-556670438-c4118c)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f8282899a6b7) |
+| 日剧天堂           | [城通网盘](https://url33.ctfile.com/f/13370233-556244752-bc4090)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/c7c427ab045e) |
+| 影视猫 Plus        | [城通网盘](https://url33.ctfile.com/f/13370233-553461194-86572a) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0bd69ec69458) |
+| 海阔视界           | [城通网盘](https://url33.ctfile.com/f/13370233-552790349-c989c8) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/bc44b3c914a8) |
+| 火龙果影视         | [城通网盘](https://url33.ctfile.com/f/13370233-552635663-51ced7) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/6b2d187350d4) |
+| 美剧巴士           | [城通网盘](https://url33.ctfile.com/f/13370233-546300166-1d2bc7) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/b1f9a463947a) |
+| 大海影视           | [城通网盘](https://url33.ctfile.com/f/13370233-546160075-1cfcfd) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/96d0d75dcb89) |
+| 番茄影视           | [城通网盘](https://url33.ctfile.com/f/13370233-545972740-400a17) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/64997f20078c) |
+| 淘剧社             | [城通网盘](https://url33.ctfile.com/f/13370233-544435450-54215c) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/9ced2883cd68) |
+| 哔嘀影视           | [城通网盘](https://url33.ctfile.com/f/13370233-543415907-3acab6) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e1c7866cbb0f) |
+| 天空影视（安卓）   | [城通网盘](https://url33.ctfile.com/f/13370233-542668925-119f07) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/86904bdc6ce5) |
+| 天空影视（TV）     | [城通网盘](https://url33.ctfile.com/f/13370233-542668916-a24019) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/8d87bd2ca4e0) |
+| 每天看看           | [城通网盘](https://url33.ctfile.com/f/13370233-542551921-ac7982) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3b21b6ce87e2) |
+| 4K 影院            | [城通网盘](https://url33.ctfile.com/f/13370233-542236901-e67612) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/8c3d50b5d4c7) |
+| 奇奇动画           | [城通网盘](https://url33.ctfile.com/f/13370233-542215121-cf0c56) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/92c6493f2215) |
+| 好猫影视           | [城通网盘](https://url33.ctfile.com/f/13370233-540794336-ba8e40) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3d4d026222e0) |
+| 次元站             | [城通网盘](https://url33.ctfile.com/f/13370233-540223453-15471e) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/104f5175f8e7) |
+| 简易影视           | [城通网盘](https://url33.ctfile.com/f/13370233-539483671-303e5a) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5c7ccec1cc24) |
+| 火龙果影视         | [城通网盘](https://url33.ctfile.com/f/13370233-539345914-e1cfc1) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f3a2c8873b5e) |
+| 易看 Pro           | [城通网盘](https://url33.ctfile.com/f/13370233-538550035-0afd30) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/a2a109fdcdca) |
+| 元宇宙影视         | [城通网盘](https://url33.ctfile.com/f/13370233-538195719-1c49dc) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/02dbce72d2f9) |
+| 觅影纯净版         | [城通网盘](https://url33.ctfile.com/f/13370233-538179680-599c55) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3b4c91514e7f) |
+| CliCli 动漫        | [城通网盘](https://url33.ctfile.com/f/13370233-536551827-f34487) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/595eaacda059) |
 
 ### 2.2 电视盒子软件
 
-| 迷影视                  | [城通网盘](https://url33.ctfile.com/f/13370233-563404631-4261f1)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5bf642533806) |
+| 猫影视TV                | [城通网盘](https://url33.ctfile.com/f/13370233-573347728-6569d4?p=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/60b12fedaec6) |
 | :---------------------- | :----------------------------------------------------------- |
+| 全球TV直播              | [城通网盘](https://url33.ctfile.com/f/13370233-571416178-324f27)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/df00f651e27b) |
+| 今日影视TV_4.5.3        | [城通网盘](https://url33.ctfile.com/f/13370233-568858122-961890)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0b7ab6cabb81) |
+| 盒迷 v1.0               | [城通网盘](https://url33.ctfile.com/f/13370233-567569520-5c9150)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0961a50056a8) |
+| BiuBiuTV3.1.2           | [城通网盘](https://url33.ctfile.com/f/13370233-567296837-a4d391)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/efd4a0da8401) |
+| 柠檬TV                  | [城通网盘](https://url33.ctfile.com/f/13370233-564358616-0b9129)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3c7ecd3b25c2) |
+| 迷影视                  | [城通网盘](https://url33.ctfile.com/f/13370233-563404631-4261f1)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5bf642533806) |
 | MOVIES TV_v1.0.7        | [城通网盘](https://url33.ctfile.com/f/13370233-562848517-a3063e)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/b7e4601de678) |
 | 星火直播                | [城通网盘](https://url33.ctfile.com/f/13370233-562533144-e7801e)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/fbeee95a3c5c) |
 | HeHeTV                  | [城通网盘](https://url33.ctfile.com/f/13370233-561341670-a965bb)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0d29f8f24a8b) |
@@ -92,8 +104,11 @@
 
 ### 2.3 工具软件
 
-| 小马游戏模拟器       | [城通网盘](https://url33.ctfile.com/f/13370233-563403689-d60f77)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/23e2673b0d37) |
+| XPlayer v2.3.0       | [城通网盘](https://url33.ctfile.com/f/13370233-572225680-c88f09)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/928f55b48a1d) |
 | :------------------- | :----------------------------------------------------------- |
+| 全能工具箱专业版     | [城通网盘](https://url33.ctfile.com/f/13370233-571687396-14dcfb)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/4435974d3388) |
+| 磁力播v1.2.4         | [城通网盘](https://url33.ctfile.com/f/13370233-568599558-45b57a)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f16ff33f4093) |
+| 小马游戏模拟器       | [城通网盘](https://url33.ctfile.com/f/13370233-563403689-d60f77)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/23e2673b0d37) |
 | 磁力猫               | [城通网盘](https://url33.ctfile.com/f/13370233-560349897-70a2ef)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/1a77d1f03c7d) |
 | 云盘搜索助手         | [城通网盘](https://url33.ctfile.com/f/13370233-555934308-bcd635)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/dbe6e18bc259) |
 | 戈搜磁力搜索         | [城通网盘](https://url33.ctfile.com/f/13370233-553034636-4b678c) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/282332be63ce) |
@@ -114,8 +129,9 @@
 
 ### 2.4 小说阅读软件
 
-| 启阅，支持听书+看书 | [城通网盘](https://url33.ctfile.com/f/13370233-554046071-da768b)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0e8dd326837c) |
+| 新阅读v3.22         | [城通网盘](https://url33.ctfile.com/f/13370233-567916755-e7ada6)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/01e27e7f5c63) |
 | :------------------ | :----------------------------------------------------------- |
+| 启阅，支持听书+看书 | [城通网盘](https://url33.ctfile.com/f/13370233-554046071-da768b)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0e8dd326837c) |
 | 我的听书            | [城通网盘](https://url33.ctfile.com/f/13370233-545731129-e8151b) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/65b6d1ebba94) |
 | 荧光阅读            | [城通网盘](https://url33.ctfile.com/f/13370233-542701625-e74616) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/658bad25e09b) |
 | 老白故事            | [城通网盘](https://url33.ctfile.com/f/13370233-538766921-2fcbd0) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/95e01bec82e6) |
@@ -123,8 +139,9 @@
 
 ### 2.5 音乐软件
 
-| 听下             | [城通网盘](https://url33.ctfile.com/f/13370233-561117321-27d4d8)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e27fd8290c95) |
+| 遇见音乐v1.1.0   | [城通网盘](https://url33.ctfile.com/f/13370233-571913686-a12ee3)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/15f086d56083) |
 | :--------------- | :----------------------------------------------------------- |
+| 听下             | [城通网盘](https://url33.ctfile.com/f/13370233-561117321-27d4d8)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e27fd8290c95) |
 | 酷我音乐         | [城通网盘](https://url33.ctfile.com/f/13370233-552634694-855489) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/8425b21fdfa2) |
 | 卡音             | [城通网盘](https://url33.ctfile.com/f/13370233-546763812-6a7fe0) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3a6eed46b080) |
 | Myradio 全球电台 | [城通网盘](https://url33.ctfile.com/f/13370233-542421127-bc414f) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/5000a1f28b24) |
