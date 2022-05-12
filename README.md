@@ -28,8 +28,11 @@
 
 ### 2.1 影视软件
 
-| 乐乐影视           | [城通网盘](https://url33.ctfile.com/f/13370233-573347278-f74075?p=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/67a9180dd604) |
+| 乔治影院           | [城通网盘](https://url33.ctfile.com/f/13370233-578429839-3e2872?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iqKs804jwy5a) |
 | :----------------- | :----------------------------------------------------------- |
+| 简易影视v1.8.9     | [城通网盘](https://url33.ctfile.com/f/13370233-577965389-02d29e?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/ihKOQ04ealvg) |
+| AH视频 v3.0.83     | [城通网盘](https://url33.ctfile.com/f/13370233-575172824-c5a705?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iUrNv03y9j0b) |
+| 乐乐影视           | [城通网盘](https://url33.ctfile.com/f/13370233-573347278-f74075?p=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/67a9180dd604) |
 | 荐片               | [城通网盘](https://url33.ctfile.com/f/13370233-572800670-f108e9?pwd=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/00971b219043) |
 | 影视森林           | [城通网盘](https://url33.ctfile.com/f/13370233-569086887-e1edc1)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/62fca1b7c270) |
 | 影视猫 Plus_v4.1.1 | [城通网盘](https://url33.ctfile.com/f/13370233-568229896-8f7dfd)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/54378d7259c1) |
@@ -67,8 +70,13 @@
 
 ### 2.2 电视盒子软件
 
-| 猫影视TV                | [城通网盘](https://url33.ctfile.com/f/13370233-573347728-6569d4?p=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/60b12fedaec6) |
+| BiuBiuTV                | [城通网盘](https://url33.ctfile.com/f/13370233-578968800-592123?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/ir54604njede) |
 | :---------------------- | :----------------------------------------------------------- |
+| 盒迷 v1.0.1             | [城通网盘](https://url33.ctfile.com/f/13370233-578653279-d31905?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iMPgx04lmw9e) |
+| 小書视界                | [城通网盘](https://url33.ctfile.com/f/13370233-577586056-9cb435?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/idVde04byo9i) |
+| 猫影视内置版            | [城通网盘](https://url33.ctfile.com/f/13370233-575975573-707747?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iqUHx0406zsj) |
+| 电视家3.0 v3.10.5       | [城通网盘](https://url33.ctfile.com/f/13370233-573968210-c60635?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iJr5h03spuif) |
+| 猫影视TV                | [城通网盘](https://url33.ctfile.com/f/13370233-573347728-6569d4?p=2201)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/60b12fedaec6) |
 | 全球TV直播              | [城通网盘](https://url33.ctfile.com/f/13370233-571416178-324f27)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/df00f651e27b) |
 | 今日影视TV_4.5.3        | [城通网盘](https://url33.ctfile.com/f/13370233-568858122-961890)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0b7ab6cabb81) |
 | 盒迷 v1.0               | [城通网盘](https://url33.ctfile.com/f/13370233-567569520-5c9150)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/0961a50056a8) |
@@ -104,8 +112,10 @@
 
 ### 2.3 工具软件
 
-| XPlayer v2.3.0       | [城通网盘](https://url33.ctfile.com/f/13370233-572225680-c88f09)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/928f55b48a1d) |
+| 资源全能王 v1.0.1    | [城通网盘](https://url33.ctfile.com/f/13370233-579372543-1b68c3?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/i3WSQ04poeqj) |
 | :------------------- | :----------------------------------------------------------- |
+| 搜盘器 v1.0.4        | [城通网盘](https://url33.ctfile.com/f/13370233-576971390-465fc7?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iVAye0482cre) |
+| XPlayer v2.3.0       | [城通网盘](https://url33.ctfile.com/f/13370233-572225680-c88f09)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/928f55b48a1d) |
 | 全能工具箱专业版     | [城通网盘](https://url33.ctfile.com/f/13370233-571687396-14dcfb)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/4435974d3388) |
 | 磁力播v1.2.4         | [城通网盘](https://url33.ctfile.com/f/13370233-568599558-45b57a)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/f16ff33f4093) |
 | 小马游戏模拟器       | [城通网盘](https://url33.ctfile.com/f/13370233-563403689-d60f77)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/23e2673b0d37) |
@@ -139,8 +149,9 @@
 
 ### 2.5 音乐软件
 
-| 遇见音乐v1.1.0   | [城通网盘](https://url33.ctfile.com/f/13370233-571913686-a12ee3)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/15f086d56083) |
+| 家庭KTV          | [城通网盘](https://url33.ctfile.com/f/13370233-574470476-19bc40?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iY1A003voewf) |
 | :--------------- | :----------------------------------------------------------- |
+| 遇见音乐v1.1.0   | [城通网盘](https://url33.ctfile.com/f/13370233-571913686-a12ee3)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/15f086d56083) |
 | 听下             | [城通网盘](https://url33.ctfile.com/f/13370233-561117321-27d4d8)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/e27fd8290c95) |
 | 酷我音乐         | [城通网盘](https://url33.ctfile.com/f/13370233-552634694-855489) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/8425b21fdfa2) |
 | 卡音             | [城通网盘](https://url33.ctfile.com/f/13370233-546763812-6a7fe0) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/3a6eed46b080) |
@@ -149,9 +160,11 @@
 
 ### 2.6 动漫软件
 
-| 荔枝动漫 | [城通网盘](https://url33.ctfile.com/f/13370233-556902125-8d40a4)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/fcdde8d7e772) |
-| :------- | :----------------------------------------------------------- |
-| 嘀嘀动漫 | [城通网盘](https://url33.ctfile.com/f/13370233-551374514-d00801) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/4c793014bad7) |
+| 安卓36漫画v9.3.04 | [城通网盘](https://url33.ctfile.com/f/13370233-577276384-f7e305?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/ibfQY049lahc) |
+| :---------------- | :----------------------------------------------------------- |
+| 樱花动漫          | [城通网盘](https://url33.ctfile.com/f/13370233-573703861-a1e266?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iPobo03r554f) |
+| 荔枝动漫          | [城通网盘](https://url33.ctfile.com/f/13370233-556902125-8d40a4)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/fcdde8d7e772) |
+| 嘀嘀动漫          | [城通网盘](https://url33.ctfile.com/f/13370233-551374514-d00801) （密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/4c793014bad7) |
 
 ## 3.编程资源
 
@@ -521,8 +534,12 @@
 
 2020省考模考大赛第34期终极模考     阿里链接：[阿里云盘](https://www.aliyundrive.com/s/VM75B9e5uTy)
 
-## 6.完整资源（更新服务）
+## 6.完整资源（不断更新）
 
 **享受更新服务，资源池将会越来越大！**
+
+①关注公众号：【资料分享大师】
+
+②点击公众号【精品资源菜单】
 
 ![完整资源](https://github.com/Hacker233/sharemore52/blob/master/%E3%80%90%E8%B5%84%E6%96%99%E5%88%86%E4%BA%AB%E5%A4%A7%E5%B8%88%E3%80%91%E7%B2%BE%E5%93%81%E8%B5%84%E6%BA%90%E5%88%86%E4%BA%AB.jpg)
