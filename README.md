@@ -93,8 +93,15 @@
 
 ### 2.2 电视盒子软件
 
-| BiuBiuTV                | [城通网盘](https://url33.ctfile.com/f/13370233-578968800-592123?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/ir54604njede) |
+| 小書视界聚合版          | [城通网盘](https://url33.ctfile.com/f/13370233-586427600-30772d?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/i38Hw05ozoxc) |
 | :---------------------- | :----------------------------------------------------------- |
+| 太阳直播v4.1.1          | [城通网盘](https://url33.ctfile.com/f/13370233-586427597-473290?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/i5oYe05njn5g) |
+| 4K鸭奈飞影视            | [城通网盘](https://url33.ctfile.com/f/13370233-585714461-f8b97d?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iiDlE05lztqh) |
+| 一起看TV v2.1.9         | [城通网盘](https://url33.ctfile.com/f/13370233-584004255-f1db08?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/ie0i905djlla) |
+| 超级ITV直播 v5.0.3      | [城通网盘](https://url33.ctfile.com/f/13370233-581312889-d6c57d?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iOAGy0542b4h) |
+| 八仟影视TV v0.8.4       | [城通网盘](https://url33.ctfile.com/f/13370233-580867710-5aa1c9?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iVaIP0501n8d) |
+| 明日影视TV_2.0.5        | [城通网盘](https://url33.ctfile.com/f/13370233-580490184-447101?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iKCoc04y1deh) |
+| BiuBiuTV                | [城通网盘](https://url33.ctfile.com/f/13370233-578968800-592123?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/ir54604njede) |
 | 盒迷 v1.0.1             | [城通网盘](https://url33.ctfile.com/f/13370233-578653279-d31905?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iMPgx04lmw9e) |
 | 小書视界                | [城通网盘](https://url33.ctfile.com/f/13370233-577586056-9cb435?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/idVde04byo9i) |
 | 猫影视内置版            | [城通网盘](https://url33.ctfile.com/f/13370233-575975573-707747?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iqUHx0406zsj) |
@@ -135,8 +142,11 @@
 
 ### 2.3 工具软件
 
-| 资源全能王 v1.0.1    | [城通网盘](https://url33.ctfile.com/f/13370233-579372543-1b68c3?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/i3WSQ04poeqj) |
+| 磁力云v2.6.8高级版   | [城通网盘](https://url33.ctfile.com/f/13370233-584573831-6cdede?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iIzwn05gz33i) |
 | :------------------- | :----------------------------------------------------------- |
+| 戈搜v1.3.4.1         | [城通网盘](https://url33.ctfile.com/f/13370233-582972069-02ea21?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iaXB305brzmb) |
+| 雨见Rains浏览器      | [城通网盘](https://url33.ctfile.com/f/13370233-582932325-65fbc9?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/igG6m05bl6aj) |
+| 资源全能王 v1.0.1    | [城通网盘](https://url33.ctfile.com/f/13370233-579372543-1b68c3?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/i3WSQ04poeqj) |
 | 搜盘器 v1.0.4        | [城通网盘](https://url33.ctfile.com/f/13370233-576971390-465fc7?p=2201)（密码：2201）<br>[蓝奏云](https://wwi.lanzoup.com/iVAye0482cre) |
 | XPlayer v2.3.0       | [城通网盘](https://url33.ctfile.com/f/13370233-572225680-c88f09)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/928f55b48a1d) |
 | 全能工具箱专业版     | [城通网盘](https://url33.ctfile.com/f/13370233-571687396-14dcfb)（密码：2201）<br>[夸克网盘](https://pan.quark.cn/s/4435974d3388) |
